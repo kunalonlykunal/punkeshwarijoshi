@@ -1,2 +1,0 @@
-# punkeshwarijoshi
-punkeshwari joshi
